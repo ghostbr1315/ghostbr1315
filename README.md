@@ -7,3 +7,5 @@ charanai guaranai pra vcs
  RA 000111478675 -5 SP
 
  ![](https://media1.tenor.com/m/ivgwTioduXsAAAAC/meliodas.gif)
+
+ ![](https://media.tenor.com/iDlYZ3fQ47gAAAAi/amogus.gif)
